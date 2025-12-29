@@ -1,1 +1,0 @@
-The company's profit rose by 15% in the last quarter
